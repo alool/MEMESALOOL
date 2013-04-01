@@ -1,0 +1,4 @@
+MEMESALOOL
+==========
+
+OK FOR LOVE &amp; FRIENDSHIP
